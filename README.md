@@ -1,0 +1,5 @@
+- @Indexios here :)
+  - my intrests are gaming, sports and music
+    - I’m currently learning data science (py and sql) 
+- 📫 How to reach me @Indexios (on twitter/x) or IndexiosNova@gmail.com
+  - 😄 Pronouns: Velociraptor or Warmachine
